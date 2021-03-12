@@ -7,7 +7,7 @@ description: 華裔加拿大人
 ## Books
 
 * "[The Transcultural Streams of Chinese Canadian Identities" by Jessica Tsui Li, ed. \(Goodreads\)](https://www.goodreads.com/book/show/42682640)
-* ["Asian Canadian Studies Reader" bv Gordon Pon, ed., Roland Coloma, ed.](https://www.goodreads.com/book/show/32439326)
+* ["Asian Canadian Studies Reader" bv Gordon Pon, ed., Roland Coloma, ed. \(Goodreads\)](https://www.goodreads.com/book/show/32439326)
 
 ## Links
 
